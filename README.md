@@ -1,2 +1,2 @@
 # lagPortfolio
-Ini adalah portfolio lag
+Ini adalah portfolio yang katanya orang orang lag :v hehe
